@@ -1,2 +1,2 @@
-👋 Hi, I’m @dsilvagu
+👋 Hola, Soy @dsilvagu
 --
